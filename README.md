@@ -1,0 +1,2 @@
+# EmoSzop
+EmoSzop i tak 
